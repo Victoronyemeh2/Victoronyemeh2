@@ -1,2 +1,2 @@
-https://victoronyemeh.github.io/Carousel-Slidesho/
+https://victoronyemeh.github.io/Victoronyemeh/
 
